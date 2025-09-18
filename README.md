@@ -80,3 +80,5 @@ Remember, knowledge is power—always stay informed and prioritize your safety w
 <a href="http://jodsc7kug54j4a3sxh26aec2aeqxmo4kyaz4xv2oosytzyesg3uagvyd.onion"><img src="/upload/mask.webp" alt="DarkDock Login" style="max-width: 100%;"></a>
   
 <a href="http://jodsc7kug54j4a3sxh26aec2aeqxmo4kyaz4xv2oosytzyesg3uagvyd.onion"><img src="/upload/divider.webp" alt="DarkDock Register" style="max-width: 100%;"></a>
+
+Update:  09/18/2025
